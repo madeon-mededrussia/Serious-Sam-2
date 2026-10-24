@@ -224,4 +224,4 @@ Serious Sam 2 is offered as a complete free version with all features and update
 Experience the excitement of Serious Sam 2 today! Download now and join the battle to save mankind!
 
 ---
-**Last updated:** 2026-10-24 10:22:10 UTC
+**Last updated:** 2026-10-24 14:16:18 UTC
